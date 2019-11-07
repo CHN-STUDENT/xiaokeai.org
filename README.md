@@ -1,2 +1,2 @@
-# xiaokeai.org
-https://xiaokeai.org/
+# 你好，小可爱
+永远相信并且追求美好。
